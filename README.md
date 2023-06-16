@@ -1,0 +1,1 @@
+# ControlTask6_MQA_Tarlan_Amirov
